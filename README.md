@@ -1,0 +1,2 @@
+# mstdn_novel
+よしなに
